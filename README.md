@@ -1,4 +1,5 @@
 ### Hello! 
 
-My name is Bryana A.S. Thieret and I am a senior at St. Lawrence University majoring in both Psychology and Statistics. I plan to go into a PhD program for Behavior Analysis right after I graduate. Most of the research I have done has related to invesigating the long-term effects of early-life stress through rodent models.  
+My name is Bryana A.S. Thieret and I am a doctoral student in the Behavior Analysis program at the University of Kansas. I graduated from St. Lawrence University with a B.S. in Psychology and Statistics in 2024. Most research I have done consists of animal model research looking at impulsive choice and action behavior. 
+
 
